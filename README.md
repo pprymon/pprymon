@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pprymon
 - 👀 I’m interested in audio systems, power electronics, electromobility
-- 🌱 I’m currently learning how to be adult person :)
+- 🌱 I’m currently learning how to be an adult person :)
 - 💞️ I’m looking to collaborate on enyone who want to do something which matter
 - 📫 How to reach me slack channel (pprymon) or zoom (pprymon)
 
